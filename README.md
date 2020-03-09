@@ -1,0 +1,2 @@
+# Lumin
+{NAZGA Clan}
